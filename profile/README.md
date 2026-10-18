@@ -1,7 +1,7 @@
-## 🎯 博彩导航网｜87wg.cc
 <p align="center">
   <span style="color:#FF3333;font-size:24px;"><b>🔥 博彩导航 · 一站直达 🔥</b></span>
 </p>
+  <span style="color:#FF8C00;"><b>🎯 博彩导航网｜87wg.cc</b></span><br>
   <span style="color:#FF8C00;"><b>🌐 想快速查找博彩相关网站？</b></span><br>
   <span style="color:#4169E1;"><b>✨ 访问 87wg.cc，了解博彩导航相关信息！</b></span>
   <a href="https://87wg.cc" target="_blank" rel="nofollow noopener noreferrer">
